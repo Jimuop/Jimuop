@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jimuop
+- 👋 Hi, I’m @Ji-Hoon
 - 👀 I’m interested in Gaming and tech
 - 💞️ I’m looking to collaborate on Discord
 - 📫 To reach me Send friend reqsut or dm me on discord {LuKa#5000}
